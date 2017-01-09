@@ -8,7 +8,7 @@ Team Members
 
 Sarah Ibok
 
-Jaspreet Singhj
+Jaspreet Singh
 
 Eric Ezenwa
 
